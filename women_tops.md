@@ -1,4 +1,4 @@
-  🩱 Tops
+🩱 Tops
 - Off-shoulder
 - Halter neck tops
 - Bodysuits
