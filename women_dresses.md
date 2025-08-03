@@ -1,0 +1,14 @@
+👗 Dresses
+- Elegant Maxi Dress
+- Slip Dress
+- Ruffle & Tiered Dresses
+- Wrap Dress
+- Long-Sleeved Minidress
+- Denim Dress
+- Leather Dress
+- A-Line Dress
+- Strapless Mididress
+- Sweater Dress
+- Polkadot Dress
+- LBD Dress (Little Black Dress)
+- Halter Dress
