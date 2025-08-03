@@ -1,0 +1,11 @@
+🩳 Shorts
+- Cotton Shorts
+- Denim Shorts
+- Chino Shorts
+- Cargo Shorts
+- Madras or Plaid Shorts
+- Linen Shorts
+- Hiking Shorts
+- Golf Shorts
+- Tailored Shorts
+- Bermuda Shorts
