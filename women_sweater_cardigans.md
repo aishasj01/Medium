@@ -1,0 +1,13 @@
+🧶 Sweaters & Cardigans
+- Aran or Fisherman’s Sweater
+- Argyle Knit
+- Bell Sleeve Sweater
+- Boyfriend Sweater
+- Cables Knit Sweater
+- Cashmere
+- Cutout Sweater
+- Cowl-Neck Sweater
+- Fair Isle Sweater
+- Off-The-Shoulder Sweater
+- Scoop Neck Sweater
+- Tennis Sweater
