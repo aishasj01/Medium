@@ -1,0 +1,22 @@
+### 👗 Here are some options to explore for women. Pick an option or two the next time you plan to buy another active wear.
+| **Tops**           | **Skirts**             | **Pants**          | **Shorts**             | **Dresses**             | **Scarfs**                        | **Jackets**        | **Sweaters/Cardigans**      |
+| ------------------ | ---------------------- | ------------------ | ---------------------- | ----------------------- | --------------------------------- | ------------------ | --------------------------- |
+| Off-shoulder       | A-Line Skirt           | Cargo Pants        | Paperbag Waist Shorts  | Elegant Maxi Dress      | Bandana                           | Bomber Jacket      | Aran or Fisherman’s Sweater |
+| Halter neck tops   | Pencil Skirt           | Pleated Pants      | Cargo Shorts           | Slip Dress              | Rectangular Scarf                 | Flight Jacket      | Argyle Knit                 |
+| Bodysuits          | Midi Skirt             | Jeans              | Pleated Shorts         | Ruffle & Tiered Dresses | Triangle Scarf                    | Leather Jacket     | Bell Sleeve                 |
+| Wrap Top           | Wrap Skirt             |                    | Linen Shorts           | Wrap Dress              | Square Scarf                      | Varsity Jacket     | Boyfriend Sweater           |
+| Button-Down Shirt  | Tulle Skirt            |                    |                        | Long-Sleeved Minidress  | Infinity Scarf (Cowl)             | Puffer Jacket      | Cables Knit Sweater         |
+|                    | Denim Skirt            |                    |                        | Denim Dress             | Twilly Scarf (Ribbon/Skinny Scarf)| Fleece Jacket      | Cashmere                    | 
+|                    | Tiered Skirt           |                    |                        | Leather Dress           | Shawl & Stole                     | Blazer Jacket      | Cutout Sweater              |
+|                    | Leather skirt          |                    |                        | A-Line Dress            |                                   | Windbreaker Jacket | Cowl-Neck Sweater           |
+|                    |                        |                    |                        | Strapless Mididress     |                                   | Harrington Jacket  | Fair Isle Sweater           |
+|                    |                        |                    |                        | Sweater Dress           |                                   | Denim Jacket       | Off-The-Shoulder Sweater    |
+|                    |                        |                    |                        | Polkadot dress          |                                   | Mackintosh Jacket  | Scoop Neck Sweater          |
+|                    |                        |                    |                        | LBD Dress               |                                   | Track Jacket       | Tennis Sweater              |
+|                    |                        |                    |                        | Halter Dress            |                                   | Quilted Jacket     |                             |
+|                    |                        |                    |                        |                         |                                   | Biker Jacket       |                             |
+|                    |                        |                    |                        |                         |                                   | Trucker Jacket     |                             |
+|                    |                        |                    |                        |                         |                                   | Shirt Jacket       |                             |
+|                    |                        |                    |                        |                         |                                   | Field Jacket       |                             |
+|                    |                        |                    |                        |                         |                                   | Shearling Jacket   |                             |
+|                    |                        |                    |                        |                         |                                   | Suede Jacket       |                             |
