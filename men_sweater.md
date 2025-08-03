@@ -1,0 +1,14 @@
+🧶 Sweaters
+- Classic Crew Neck Sweater
+- V-Neck Sweater
+- Turtleneck Sweater
+- Cable Knit Sweater
+- Shawl Collar Cardigan
+- Shawl Collar Sweater
+- Fisherman Sweater
+- Half-Zip / Quarter-Zip Sweater
+- Henley Sweater
+- Full-Zip Sweater
+- Hooded Sweater
+- Fine Gauge Sweater
+- Fair Isle Sweater
